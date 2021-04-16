@@ -1,4 +1,4 @@
-👋 Greetings Earthlings. I'm known as @Haronniin pretty much everywhere on the interwebs.
+👋 Greetings Earthlings. I'm known as @Haronniin pretty much everywhere on the interwebs. (The name was taken from C.J. Cherryh's Foreigner series and means "a system under stress, needing adjustment.)
 
 💾 I started in software back in the 80s with BASIC and have dabled in many languages, but mastered none. 
 
